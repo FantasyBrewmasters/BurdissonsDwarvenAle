@@ -1,4 +1,4 @@
 BurdissonsDwarvenAle
 ====================
 
-Dwarven Ale created by Fantasy Brewmasters and Comapny - Dwarf Brew 2010
+Dwarven Ale created by Fantasy Brewmasters and Company - Dwarf Brew 2010
